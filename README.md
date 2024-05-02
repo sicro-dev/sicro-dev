@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Contato:
+Meu contato:
 
-https://discord.com/users/873698874466897921
+[Grade Flex](https://discord.com/users/873698874466897921)
 maito:userpedro000@gmail.com
